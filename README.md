@@ -7,7 +7,7 @@
 
 ## Check my tiktok
 
-[![Github](https://img.shields.io/badge/Tiktok-valdooos-yellow?style=for-the-badge&logo=Tiktok)](https://tiktok.com/@CEBOXX)
+[![Github](https://img.shields.io/badge/Tiktok-ceboxxx-yellow?style=for-the-badge&logo=Tiktok)](https://tiktok.com/@Valdooos)
 
 
 ##
